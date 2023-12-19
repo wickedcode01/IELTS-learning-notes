@@ -19,7 +19,7 @@ Octagon - /ˈɒktəˌɡɒn/ 八边形
 
 Star - /stɑːr/ 星形
 
-rhomboid
+parallelogram /pærəˈleləɡræm/ 平行四边形
 
 ## stereometry
 Cube - 立方体
@@ -88,6 +88,6 @@ the expression of the quantity of a plus b multiplied by c, divided by d, is equ
 
 a^n  
 a to the power of n  
-a! = b
+a! = b  
 a factorial equals b
 
