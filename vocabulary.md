@@ -42,3 +42,59 @@ twelfth
 specificities
 
 rambunctious
+
+Terrific
+He's something 了不起
+Aerobics
+No sweat
+Not feel a thing
+Pilgrims
+charade
+Nepotism
+Collector
+Collateral
+Diaper
+Suburb
+Pumpernickel
+Aquarium
+Hygienic
+Inn
+Double room 双人间
+Hang up 挂电话
+Daily rate
+Parking lot
+Compliment 赞扬，称赞；问候，祝贺
+Cinnamon
+Clove
+Syrup
+Extortion
+Mime
+Sensational
+Toilsome
+Coalition
+Observer
+Arithmetic
+Jitter
+Clip-on bow tie
+Tuxedo
+Patio
+A big fish in little pond
+Torn
+wound up
+Niece
+Editorial
+Refurbishing
+Scrub
+Peel
+Fracture
+Engrave
+Relish 调味
+Utensils 厨具
+Soothing
+Autograph
+Syndicate
+Syndicated
+Cuff
+Stalling
+hors d'oeuvres
+Flatter
