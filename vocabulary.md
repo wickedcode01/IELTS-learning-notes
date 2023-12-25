@@ -43,58 +43,58 @@ specificities
 
 rambunctious
 
-Terrific
-He's something 了不起
-Aerobics
-No sweat
-Not feel a thing
-Pilgrims
-charade
-Nepotism
-Collector
-Collateral
-Diaper
-Suburb
-Pumpernickel
-Aquarium
-Hygienic
-Inn
-Double room 双人间
-Hang up 挂电话
-Daily rate
-Parking lot
-Compliment 赞扬，称赞；问候，祝贺
-Cinnamon
-Clove
-Syrup
-Extortion
-Mime
-Sensational
-Toilsome
-Coalition
-Observer
-Arithmetic
-Jitter
-Clip-on bow tie
-Tuxedo
-Patio
-A big fish in little pond
-Torn
-wound up
-Niece
-Editorial
-Refurbishing
-Scrub
-Peel
-Fracture
-Engrave
-Relish 调味
-Utensils 厨具
-Soothing
-Autograph
-Syndicate
-Syndicated
-Cuff
-Stalling
-hors d'oeuvres
-Flatter
+Terrific  
+He's something 了不起  
+Aerobics 有氧运动  
+No sweat  
+Not feel a thing  
+Pilgrims  
+charade n.装模作样，做戏；打哑谜猜字游戏  
+Nepotism 裙带关系  
+Collector  
+Collateral 抵押物  
+Diaper  
+Suburb  
+Pumpernickel 黑面包  
+Aquarium 水族箱，养鱼缸；水族馆  
+Hygienic  
+Inn  
+Double room 双人间  
+Hang up 挂电话  
+Daily rate  
+Parking lot  
+Compliment 赞扬，称赞；问候，祝贺  
+Cinnamon  
+Clove  
+Syrup 糖浆  
+Extortion  
+Mime  
+Sensational  
+Toilsome  
+Coalition  
+Observer  
+Arithmetic  
+Jitter  
+Clip-on bow tie  
+Tuxedo  
+Patio  
+A big fish in little pond  
+Torn  
+wound up  
+Niece  
+Editorial  
+Refurbishing  
+Scrub  
+Peel  
+Fracture  
+Engrave  
+Relish 调味  
+Utensils 厨具  
+Soothing  
+Autograph  
+Syndicate  
+Syndicated  
+Cuff  
+Stalling  
+hors d'oeuvres  
+Flatter  
